@@ -1,4 +1,4 @@
-# 
+# Seguro Smallpdf Desktop complementos para Mac OS | Nativo Smallpdf Desktop complementos para PC Windows. Com mesclagem de PDF e ferramentas de anotação — otimizado para máximo desempenho em cada plataforma.
 
 
 
